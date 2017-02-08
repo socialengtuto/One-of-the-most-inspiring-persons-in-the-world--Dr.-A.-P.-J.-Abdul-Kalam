@@ -1,0 +1,2 @@
+# One-of-the-most-inspiring-persons-in-the-world--Dr.-A.-P.-J.-Abdul-Kalam
+Stories of extreme hardship, braving impossible odds and innumerable sacrifices, abound in the lives of nearly 90 percent of the students in the country. But among them, some perform exceptionally well. Their academic laurels are so brilliant, that at times their CV looks intimidating. And each one acknowledges that it's the right education that made them what they are today.
